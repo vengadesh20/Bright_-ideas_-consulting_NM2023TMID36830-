@@ -1,0 +1,1 @@
+# Bright_-ideas_-consulting_NM2023TMID36830-
